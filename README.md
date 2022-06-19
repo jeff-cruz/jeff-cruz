@@ -12,3 +12,12 @@
 ![figma](https://user-images.githubusercontent.com/99565410/174503755-d17913e7-1971-4b28-9c79-52f04a36b6f8.png)
 
 ## 🧑🏻‍💻 About Me
+Hi everyone! I'm Jeffrey/Jeff, an aspiring full-stack software engineer! Strong in HTML5, CSS3 and JavaScript and more than willing to learn everything I can to be more experienced and to build my skill set. 
+
+Restaurant Shift Lead ➡️ Retail Sales Associate ➡️ Professional Dancer ➡️ Medical Administrator 🔜 Software Engineer 
+👆🏼 Ask me about my journey!
+
+“Success is no accident. It is hard work, perseverance, learning, studying, sacrifice and most of all, love of what you are doing or learning to do.” – Pele
+
+## 🔗 Let's Connect!
+* https://www.linkedin.com/in/jeffreydcruz/
