@@ -25,4 +25,5 @@ Restaurant Shift Lead ➡️ Retail Sales Associate ➡️ Professional Dancer �
 * 🎮 I love to game! Valorant, League of Legends, Teamfight Tactics are my forte! 
 
 ## 🔗 Let's Connect!
+Absolutely open to new connections! 
 * [LinkedIn](https://www.linkedin.com/in/jeffreydcruz/)
