@@ -20,4 +20,4 @@ Restaurant Shift Lead ➡️ Retail Sales Associate ➡️ Professional Dancer �
 “Success is no accident. It is hard work, perseverance, learning, studying, sacrifice and most of all, love of what you are doing or learning to do.” – Pele
 
 ## 🔗 Let's Connect!
-* https://www.linkedin.com/in/jeffreydcruz/
+* [LinkedIn](https://www.linkedin.com/in/jeffreydcruz/)
