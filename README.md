@@ -4,5 +4,6 @@
 
 ## 💻 Tech Stack 
 ![html5 (1)](https://user-images.githubusercontent.com/99565410/174503112-963f35d5-a3a2-4e77-9baa-29d9ede56e7a.png)
+![css3](https://user-images.githubusercontent.com/99565410/174503214-4f8fa56e-84d3-4cf4-b96c-62b54bd71d0b.png)
 
 ## 🧑🏻‍💻 About Me
