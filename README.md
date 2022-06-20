@@ -22,8 +22,8 @@ Restaurant Shift Lead ➡️ Retail Sales Associate ➡️ Professional Dancer �
 
 ## ✨ Fun Facts
 * 📍 I have lived in San Diego, CA my whole life. 
-* 🕺🏼 I am a now retired hip-hop dancer of 13 years 
-* 🎮 I love to game! Valorant, League of Legends, Teamfight Tactics are my forte! 
+* 🕺🏼 I am a now retired hip-hop dancer of 13 years.
+* 🎮 I love to game! Valorant, League of Legends, Teamfight Tactics are my forte.
 
 ## 🔗 Let's Connect!
 Absolutely open to new connections! 
