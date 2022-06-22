@@ -1,5 +1,4 @@
 ![Black Minimal Motivation Quote LinkedIn Banner](https://user-images.githubusercontent.com/99565410/174502420-f8873c22-0512-4708-95bf-26682998a539.png)
-### Hey now! 🤓
 
 ## 💻 Technologies
 ![html5](https://user-images.githubusercontent.com/99565410/174503544-a51705df-ac1e-48e7-ae5f-2563fc5ddd53.png)
