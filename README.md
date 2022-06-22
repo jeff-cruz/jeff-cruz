@@ -19,8 +19,8 @@ Restaurant Shift Lead ➡️ Retail Sales Associate ➡️ Professional Dancer �
 “Success is no accident. It is hard work, perseverance, learning, studying, sacrifice and most of all, love of what you are doing or learning to do.” – Pele
 
 ## ✨ Fun Facts
-* 📍 I have lived in San Diego, CA my whole life. 
-* 🕺🏼 I am a now retired hip-hop dancer of 13 years.
+* 📍 San Diego, CA
+* 🕺🏼 I am a retired hip-hop dancer of 13 years.
 * 🎮 I love to game! Valorant, League of Legends, Teamfight Tactics are my forte.
 
 ## 🔗 Let's Connect!
