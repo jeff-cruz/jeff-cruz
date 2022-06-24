@@ -20,7 +20,7 @@ Restaurant Shift Lead ➡️ Retail Sales Associate ➡️ Professional Dancer �
 
 ## ✨ Fun Facts
 * 📍 San Diego, CA
-* 🕺🏼 I am a former hip-hop dancer of 13 years.
+* 🕺🏼 Former hip-hop dancer of 13 years.
 * 🎮 I love to game! Valorant, League of Legends, Teamfight Tactics are my forte.
 
 ## 🔗 Let's Connect!
