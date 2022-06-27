@@ -25,5 +25,6 @@ Restaurant Shift Lead ➡️ Retail Sales Associate ➡️ Professional Dancer �
 
 ## 🔗 Let's Connect!
 Absolutely open to new connections! 
-![(https://www.linkedin.com/in/jeffreydcruz/]([https://user-images.githubusercontent.com/99565410/175866789-27379d78-4ec3-46cd-a2a3-6d30a0d538c9.png](https://www.linkedin.com/in/jeffreydcruz/))
+![Daco_4051803 (1) (1)](https://www.linkedin.com/in/jeffreydcruz/)
+
 * [LinkedIn](https://www.linkedin.com/in/jeffreydcruz/)
