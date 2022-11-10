@@ -12,7 +12,7 @@
 ## 🧑🏻‍💻 About Me
 Hi everyone! I'm Jeffrey/Jeff, an aspiring full-stack software engineer! Strong in HTML5, CSS3 and JavaScript and more than willing to learn everything I can to be more experienced and to build my skill set. 
 
-Restaurant Shift Lead ➡️ Retail Sales Associate ➡️ Professional Dancer ➡️ Medical Administrator 🔜 Software Engineer 
+Restaurant Shift Lead ➡️ Retail Sales Associate ➡️ Professional Dancer ➡️ Medical Administrator ➡️ Software Engineer 
 
 👆🏼 Ask me about my journey!
 
